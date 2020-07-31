@@ -1,6 +1,7 @@
 ### Hi 👋
 
 - 😊 Call me *Justin*
+- Love Coding, Love 🐱 , Enjoying Life.
 - 🔭 Here's my Blog: [keepmoving.ren](https://keepmoving.ren)
 
 <!--
